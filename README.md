@@ -1,7 +1,7 @@
 ## Abdullah Mehboob
 
 # Freelancer On Fiver and Upwork
-visit my **<a href="https://www.fiverr.com/abdullahmaaz17?public_mode=true" target="_blank">Fiver</a>** and **<a href="https://www.upwork.com/freelancers/~0137206d2c20045e44" target="_blank">Upwork</a>** Profile
+visit my <a href="https://www.fiverr.com/abdullahmaaz17?public_mode=true" target="_blank">Fiver</a> and <a href="https://www.upwork.com/freelancers/~0137206d2c20045e44" target="_blank">Upwork</a> Profile
 
 
 - 👋 Hi, I’m @abdullahmehboob20s
